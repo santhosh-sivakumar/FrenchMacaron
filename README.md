@@ -1,6 +1,6 @@
 # Streaker - Tasks Simplified
 
-~Introducing Streaker – Your Personal Productivity Partner!~
+**Introducing Streaker – Your ~Task Management~ Personal Productivity Partner!**
 
 Tired of juggling multiple tasks and feeling like you're dropping the ball? Say hello to _Streaker_ – the ultimate productivity app designed to skyrocket your efficiency and keep you on track like never before.
 
