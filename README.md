@@ -16,6 +16,6 @@ With _Streaker_, you're not just managing tasks – you're embarking on a journe
 
  5. Stay Inspired: Need a boost of motivation? Streaker delivers daily inspiration and tips to keep you focused and energized. Say goodbye to procrastination – it's time to unleash your full potential.
 
-![](https://media1.tenor.com/m/WlnBGzhdFfwAAAAC/twitter-verified-icon.gif)
+![](https://media.tenor.com/Twt9904414AAAAAi/pink-verify.gif)
 
 _Ready to supercharge your productivity? Download Streaker today and start dominating your day like never before. Let's make every day a winning streak!_
